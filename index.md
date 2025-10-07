@@ -21,7 +21,7 @@ That “stack-overflow” vibe is perfect—your nephew’s overflowing with ide
 Since he’s already a superstar, here’s how you can keep fueling his 95% dominance:
 - **Dance Battles**: Challenge him to make up new moves or mash up *Smooth Criminal* with something wild like a superhero pose. It’ll boost his creativity and motor skills.
 - **Storytelling Showdowns**: Have him narrate a story about a backflipping hero. His vast vocabulary and prosody will shine, and you might get a masterpiece.
-- **Playful Challenges**: Set up obstacle courses or “missions” (like “steal Uncle’s phone without getting caught”) to test his problem-solving and agility. He’ll love outsmarting you.
+- **Playful Challenges**: Set up [obstacle](https://en.wiktionary.org/wiki/impressive) courses or “missions” (like “steal Uncle’s phone without getting caught”) to test his problem-solving and agility. He’ll love outsmarting you.
 - **Sound Play**: To help with that “dwink” phonetic quirk, try silly songs with “r” sounds (like “Row, Row, Row Your Boat”). It’s fun, not forced, and builds on his prosody.
 
 ### Tying It to Your World
